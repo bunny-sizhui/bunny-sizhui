@@ -1,6 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=bunny-sizhui&color=lightgrey&style=plastic&abbreviated=true&base=130)
 
-uh hi every ponies ill make my rentry soon i'm just tired
+#ifinallyhavearentryguys 
+
+my [rentry](https://rentry.co/sqxbow)
 
 me with the huzz omg
 
