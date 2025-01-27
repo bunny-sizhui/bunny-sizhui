@@ -2,7 +2,7 @@
 
 #ifinallyhavearentryguys 
 
-my [rentry](https://rentry.co/sqxbow)
+[rentry](https://rentry.co/sqxbow) [ata](https://virtualdancer.atabook.org)
 
 me with the huzz omg
 
