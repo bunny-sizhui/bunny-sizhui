@@ -1,2 +1,5 @@
-heavy rmk, i used to be bunny-sizhui
+hi i really like danmei , roblox and uh uh lifesteal 😂😂😂😂😂😂
 
+im 17 and im like rarely on here unfornately
+
+mingling forever ok . Ok. 
